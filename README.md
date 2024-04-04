@@ -8,7 +8,7 @@
 
 1. Ireland Wellshear @21iwellshear
 
-2. Jack Liskey @jackliskey
+2. Jack Liskey @Jackliskey
 
 3. Ryan Mai @Peaches124
 
