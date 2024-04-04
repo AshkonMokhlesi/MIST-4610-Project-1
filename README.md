@@ -1,4 +1,3 @@
-# MIST-4610-Project-1
 # MIST4610-Project-1
 
 # Team name:
