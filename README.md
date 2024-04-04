@@ -15,7 +15,7 @@
 
 4. Ashkon Mokhlesi  @AshkonMokhlesi
 
-5. Karandeep Singh @ripleykurtz
+5. Karandeep Singh @KarandeepSingh23
 
 # Problem Description
 
